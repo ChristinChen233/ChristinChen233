@@ -10,6 +10,6 @@
 - 📫 Reach me via personal email: shuixingren233@gmail.com or 1421963387@qq.com
 - ⚡ Fun fact: User oriented, continuous learner, excellent collaborator, aim to solve, create, and support!
 - 😄 Please go to my LinkedIn page for more information.
-- 💬 Currently open to work/internship(available from 11.27 for 1 to 3 months), feel free to contact me via email.
+- 💬 Currently open to work/internship(available from 11.27 for 1 to 3 months) opportunity for any technology role, feel free to contact me via email.
 
 Below are some of my most fun and outstanding projects, feel free to check them out💡
