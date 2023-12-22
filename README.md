@@ -9,6 +9,6 @@
 - 📫 Reach me via personal email: chenchristin756@gmail.com
 - ⚡ Fun fact: User/Customer oriented, continuous learner, excellent collaborator, aim to solve, create, and support!
 - 😄 Please go to my LinkedIn page for more information.
-- 💬 Currently open to work/internship opportunity for any technology role, feel free to contact me via email. (available from mid of Feb. for 3 months, able to attend 3 days per week)
+- 💬 Currently open to work/internship opportunity for any IT role, feel free to contact me via email. (available from mid of Feb. for 3 months, able to attend 3 days per week)
 
 Below are some of my most fun and outstanding projects, feel free to check them out💡
