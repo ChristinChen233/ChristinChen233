@@ -11,6 +11,6 @@
 - 📫 Reach me via personal email: chenchristin756@gmail.com
 - ⚡ Fun fact: Continuous learner, excellent collaborator, aim to solve, create, and support!
 - 😄 Please go to my LinkedIn page for more information.
-- 💬 Currently open to work opportunity for any IT role, feel free to contact me via email.
+- 💬 Currently open to work opportunity for Junior to intermediate developer/engineer role, feel free to contact me via email.
 
 Below are some of my most fun projects, feel free to check them out💡
